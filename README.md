@@ -1,1 +1,0 @@
-# YeetyBoi720.github.io-resume
